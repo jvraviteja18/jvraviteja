@@ -33,7 +33,7 @@ Hobbies:-
    - Daily workout.  
    - Running.  
    - Dancing.  
-Drawing.  
+   - Drawing.  
 
 Role Models:-  
    - A.P.J.Abdul Kalam, Swami Vivekananda.  
