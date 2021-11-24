@@ -1,10 +1,10 @@
 ### Hi there 👋  
-Name: 			Jaladanki Venkata Ravi Teja  
-Father’s Name: 		Jaladanki Ravindra Babu  
-Mother’s Name: 		Jaladanki Lakshmi Prasanna Vani  
+Name: 			          Jaladanki Venkata Ravi Teja  
+Father’s Name: 		    Jaladanki Ravindra Babu  
+Mother’s Name: 		    Jaladanki Lakshmi Prasanna Vani  
 Father’s Occupation: 	Associate Professor at PVPSIT  
 Mother’s Occupation: 	House Wife  
-Native Place: 		Chalasani Nagar, Kanuru, Vijayawada  
+Native Place: 		    Chalasani Nagar, Kanuru, Vijayawada  
   
 Academics:-  
    * I have completed my SSC at Narayana high school, Kanuru.  
