@@ -12,36 +12,24 @@ Academics:-
    * Currently I am pursuing my B.Tech in CSE branch from V.R.Siddhartha Engineering College.  
   
 Goals:-  
-   - Short Term: To complete 3rd semester successfully with 10points.  
-   - Middle Term: To get a job as a Software Engineer with a salary package of more than 36 L.P.A.  
-   - Long Term: To develop programs, modules, apps relating to social networks like Facebook, Instagram and Whatsapp etc…  
+   - Short Term: To complete B.Tech Succesfully and get placed in a reputed Company.
+   - Middle Term: To get a job as a Software Engineer with a salary package of more than 5 L.P.A.  
+   - Long Term: To achieve higher positions in the working company and grow as a Software Engineer.
 
 
 Strengths:-  
-   - Confidence in what I’m doing.  
-   - Having clarity of my future plans.  
-   - Physical and Mental fitness.  
-   - I strive for excellence and perfection.  
-   - Good behavior and towards my elders and superiors.  
-
-Weaknesses:-  
-   - Sometimes lazy in doing work.  
-   - Postponing some things to be done.  
+   *Adaptability, Multi-tasking, Proactive, Eloquence, Sincerity, Honesty. 
+  
   
 Hobbies:-  
-   - Playing with friends outdoor and even indoor sometimes.  
-   - Daily workout.  
-   - Running.  
-   - Dancing.  
-   - Drawing.  
+   *Coding, Browsing Internet, Reading Books, Playing Football.  
 
-Role Models:-  
-   - A.P.J.Abdul Kalam, Swami Vivekananda.  
-
+Role Model:-  
+   *Cristiano Ronaldo
 
 
 Achievments:-  
-   - Won 5 gold medals, 1 silver medal,1 bronze medal in Karate;  
+   - Won 5 gold medals, 1 silver medal,1 bronze medal in Karate
    - GOLD MEDALS:
      - 1gold medal in 2012 international,1gold medal in 2012 state level, both in the event of Kata held at Dandamudi Rajgopal Rao Municipal Indoor Stadium, Labbipet, Vijayawada.
      - 1 gold medal in 2014 state level competetions held at Khammam in the event of Kata.
